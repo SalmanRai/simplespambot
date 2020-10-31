@@ -1,1 +1,3 @@
-# simplespambot
+S I M P L E S P A M B O T 
+
+CUMAN BUAT LATIHAN AJA KAKA.
